@@ -1,4 +1,4 @@
-# mroneill30-gmail.com
+# Pettiness
 use when u wanna be petty
 
 EXAMPLE:
